@@ -1,1 +1,1 @@
-# Portfolio
+A passionate and self-motivated individual with growing knowledge in Java programming and software development. Seeking an entry-level software developer role to enhance my skills, contribute to real-world projects, and grow within a collaborative and innovative team environment.
